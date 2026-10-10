@@ -1,6 +1,6 @@
 ## 
 hello..
-![image alt](https://github.com/yukitozy/d/blob/c12a53d75cb90478e8c27844b64a144a3aa4d900/ffac2b2adea93a0ed2b1bed55126d39b.jpg)
+
 i think im cool .! check my sp and sign my ata 
 
 my "pony style" on pt, is rlly inconssistent, bc i like to try new things and all that. tho, im not much a fan of the dark and mysterious style!!! most of my skins r bright and jolly
