@@ -7,6 +7,8 @@ my "pony style" on pt, is rlly inconssistent, bc i like to try new things and al
 
 contratei uma empregada mto linda um tsao, faz d tudo em casa mas nn quer cozinhar nao (musica kkkkkk)
 
+my fav mcyt is squiddo!!!!!! 
+
 i take art comms, my work -->https://yuckit.straw.page/commissions
 <!--
 **yuckeszy/yuckeszy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
