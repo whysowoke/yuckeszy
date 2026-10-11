@@ -5,6 +5,8 @@ i think im cool .! check my sp and sign my ata
 
 my "pony style" on pt, is rlly inconssistent, bc i like to try new things and all that. tho, im not much a fan of the dark and mysterious style!!! most of my skins r bright and jolly
 
+contratei uma empregada mto linda um tsao, faz d tudo em casa mas nn quer cozinhar nao (musica kkkkkk)
+
 i take art comms, my work -->https://yuckit.straw.page/commissions
 <!--
 **yuckeszy/yuckeszy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
