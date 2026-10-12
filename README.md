@@ -9,7 +9,6 @@ contratei uma empregada mto linda um tsao, faz d tudo em casa mas nn quer cozinh
 
 my fav mcyt is squiddo!!!!!! 
 
-i take art comms, my work -->https://yuckit.straw.page/commissions -i accept adopt me pets (cute ones or rares orrr megas) robux and pix
 <!--
 **yuckeszy/yuckeszy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
